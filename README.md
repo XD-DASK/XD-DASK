@@ -24,8 +24,5 @@ If you see this github on my Illumina skin 10/10 im REAL.
 
 
 
-![image](https://github.com/user-attachments/assets/72b5a147-ec27-41d8-9c9b-bbcb80aa3158)
-
-
 
 ![image](https://github.com/user-attachments/assets/4b7a5bc3-5495-466d-b086-dcd910a25d74)
