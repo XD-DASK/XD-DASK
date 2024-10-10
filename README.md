@@ -9,6 +9,12 @@
 - They might be on my nametag on ponytown. And if not, simply search up a picture of that character. Some characters do NOT have c+h so this is important@@!@3
 - this is a warning for just incase i might run away or move away from you !121212!1111 O_o
 
+
+-I might have anxiety sometimes due to something i might see. Starting to overthink and oversee a lot of things so im sorry if I react too much. 
+-If the name tag says DA (Distressed, anxiety), HPVA (Hyperventalating, Anxiety), dont int you might hypervent me more and more panicked because i dont know who you are, and if your a best friend of mine idek 
+
+(These events are happening too much so im sorry if i take a break for a bit.) 
+
 ![image](https://github.com/user-attachments/assets/0c65575a-4d43-490a-abdb-75bf9208ab71)
 
 
@@ -17,15 +23,15 @@
 
 Illumina - WHAT YOU CAN DO
 
-C+H - Ask for permission if im in my Illumina skin 10/10 i aint want nobody to cuddle me but friends. But if you get permission maybe!!!!! 
+C+H - Sure you can cuddle in this skin but when my tab is **"busy"** ASK for permission but if its On Away then you could do whatever.
 
 dont ask me to be ur friend in this skin. --> Illumina. 
 
-ship sits are fine in this skin but I dont like the nuzzles n stuff only with friends. 😭
+ship sits are fine in this skin but I dont like the nuzzles n stuff. 😭
 
 Away: im probably doing nothing but sitting there. 
 
-Busy: offtab ... etc. 
+**Busy**: offtab ... etc. 
 
 online: shits going down
 
@@ -54,6 +60,8 @@ Busy: offtab ... etc.
 online: shits going down
 
 w ... 
+
+I love interacting but nobody really interacts with me like that so im silent and if someone does i might be shy at first but its okay ^^
 
 I might not talk a lot in this skin! (but i love your company <3)
 
