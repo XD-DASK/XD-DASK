@@ -111,10 +111,6 @@ I love your company !
 
 
    ![image](https://github.com/user-attachments/assets/af924aaf-3500-4be1-986e-6ad961870856)
-   ![image](https://github.com/user-attachments/assets/d142901f-7e81-4eb4-96c8-de8bda76c437)
-
-![image](https://github.com/user-attachments/assets/1ea96a48-6997-460d-90cf-c347eeda1270)
-
 
 
 ![image](https://github.com/user-attachments/assets/f8365fed-8d0c-4a01-92ce-df10c4d66fe7)
