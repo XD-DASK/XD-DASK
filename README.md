@@ -18,13 +18,26 @@
 ![image](https://github.com/user-attachments/assets/0c65575a-4d43-490a-abdb-75bf9208ab71)
 
 
+![image](https://github.com/user-attachments/assets/ae8cfb8c-7378-436d-9bda-f512e3f2a852)
+
+
 If im too lazy to make github sheit
+
+
 links to strawpage
+(if they dont work then copy and past into URL)
+
+![image](https://github.com/user-attachments/assets/0ee908d5-1743-4999-905a-cd8fe4523219)
 
 
+![image](https://github.com/user-attachments/assets/df479e58-a87a-4966-95b7-e2600ba4d931)
+
+1x1x1x1 skin; c+h yes
 
 https://illeqx1x1x1x1.straw.page
 
+
+![image](https://github.com/user-attachments/assets/72b3d0c5-51c4-4053-84ea-121d1567969f)
 
 
 ![image](https://github.com/user-attachments/assets/8a496160-0db9-430e-85b0-594d79a8e562)
