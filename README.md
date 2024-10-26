@@ -18,6 +18,14 @@
 ![image](https://github.com/user-attachments/assets/0c65575a-4d43-490a-abdb-75bf9208ab71)
 
 
+If im too lazy to make github sheit
+links to strawpage
+
+
+
+https://illeqx1x1x1x1.straw.page
+
+
 
 ![image](https://github.com/user-attachments/assets/8a496160-0db9-430e-85b0-594d79a8e562)
 
