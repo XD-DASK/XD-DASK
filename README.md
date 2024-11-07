@@ -39,6 +39,9 @@ https://illeqx1x1x1x1.straw.page
 
 ![image](https://github.com/user-attachments/assets/72b3d0c5-51c4-4053-84ea-121d1567969f)
 
+https://rocket224.straw.page 
+
+rocket skin 43yujh  (ill design later im sooo lazy) 
 
 ![image](https://github.com/user-attachments/assets/8a496160-0db9-430e-85b0-594d79a8e562)
 
