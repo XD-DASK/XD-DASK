@@ -16,7 +16,8 @@
 - NO I do not have discord dont even ask me that question.
 - Please be respectful and have manners around me.
 - I might warm up to you easy if im comfortable!!!!
- 
+
+ '*•.¸♡                                                        ♡¸.•*' '*•.¸♡ ♡¸.•*''*•.¸♡ ♡¸.•*''*•.¸♡ ♡¸.•*''*•.¸♡ ♡¸.•*''*•.¸♡ ♡¸.•*''*•.¸♡ ♡¸.•*'
 
 
 
@@ -24,10 +25,15 @@
 
  
 
+'*•.¸♡ '"Oh no... You got tricked?... PSHHhh, Well TOO BAD!" '♡¸.•*'
 
                                    DNI'S !!! 
 
 ![ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/154480d1-3c61-4111-ac14-e21e2de5b5af)
+
+'*•.¸♡ '"You're sorry? i dont care!"' ♡¸.•*'
+
+
 
 ˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ 
 
