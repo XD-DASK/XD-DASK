@@ -29,7 +29,7 @@
 
                                    DNI'S !!! 
 
-![ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/154480d1-3c61-4111-ac14-e21e2de5b5af)
+[![ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/154480d1-3c61-4111-ac14-e21e2de5b5af)](https://aniyuki.com/wp-content/uploads/2025/10/Aniyuki-gachiakuta-gif-30.gif)
 
 '*•.¸♡ '"You're sorry? i dont care!"' ♡¸.•*'
 
@@ -40,6 +40,7 @@
 - DO NOT just be mean and disrespectful off the bat.
 - If you dont agree with me, ok.  tell me. It isnt going to solve a solution if you continue to argue with me.
 - The silent treatment... Dude dont even hit me with this. I dont know if i did anything wrong. Dont expect everyone to know answers... (deff not targeting anyone by saying this!!!..)
+- --->>>>> I advoid weird things in PT - INCLUDING naked ponies (esp below age ones???I saw things) - Stripper ponies -via etc anyone indulging smut. Please, I dont care if its a joke. <<<<<--------
 - Sometimes just because theres no "DNC" on my user that still means do not copy me. YES. I will LITERALLY know if you copy me, its not that hard to find out who's hair looks simular to mine (I know what hair everyone goes for) theres one, and two the clothes inspo. Dont copy me. I will be happy to HELP you make a character but do not copy me. 
 
 
