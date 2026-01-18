@@ -22,8 +22,19 @@
 
 ..........................................................................'*•.¸♡ '"I apologize... "' ♡¸.•*' ...............................................................................................
 
+https://rentry.co/Tamsy-Caines
+Made by my friend @Viinixxs !!! <3
 
- THANK YOU!!! <3
+...............................................................................................
+  ♡¸.•*'  
+  
+<img width="369" height="329" alt="image" src="https://github.com/user-attachments/assets/aad2045a-7db0-45f2-901c-06d305da420a" />
+
+BAN BAN BAN MADE THIS FOR ME AND IM VERYE VERY VERY VERY VERY 
+EXTREMLY HAPPY ILYILYILY
+
+
+ THANK YOU!!! <3 *~New Resp, due date; Feb 20th!*
 
  ![ezgif com-webp-to-gif-converter (9)](https://github.com/user-attachments/assets/8eb94476-bcac-49c4-85ba-62955ec5324c)
 
