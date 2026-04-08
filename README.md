@@ -8,7 +8,7 @@
  
 
  ![ezgif com-webp-to-gif-converter (7)](https://github.com/user-attachments/assets/663d2944-e1d2-4378-83eb-75fbee3729f7)
-'*•.¸♡ '"Making a new Respostory, come back soon!" '♡¸.•*' ![ezgif com-webp-to-gif-converter (6)](https://github.com/user-attachments/assets/ab9fe9cf-a6b8-420b-a526-a6032510d5ec)
+'*•.¸♡ '"SLOWLY Making a new Respostory, come back soon." '♡¸.•*' ![ezgif com-webp-to-gif-converter (6)](https://github.com/user-attachments/assets/ab9fe9cf-a6b8-420b-a526-a6032510d5ec)
 
 
 
@@ -20,9 +20,11 @@
 
 
 
-..........................................................................'*•.¸♡ '"I apologize... "' ♡¸.•*' ................................................................................................
+..........................................................................'*•.¸♡ '"I'm going to be a Hokage someday Yaa'knoow!? "' ♡¸.•*' ................................................................................................
 
-YES .... I always match and sit with Asphyxixate /Ban) hah!...so dedicated amirite...guys am i mutted
+belive it. 
+
+ruek blegh
 
 NNEWWERR strawpage!!!!!!! (https://fantasticalfantalinipaninimimi.straw.page) 
 
@@ -32,13 +34,9 @@ Made by my friend @Viinixxs !!! <3 TYSMMMMM
 ...............................................................................................
   ♡¸.•*'  
   
-<img width="369" height="329" alt="image" src="https://github.com/user-attachments/assets/aad2045a-7db0-45f2-901c-06d305da420a" />
-
-BAN BAN BAN MADE THIS FOR ME AND IM VERYE VERY VERY VERY VERY 
-EXTREMLY HAPPY ILYILYILY
 
 
- THANK YOU!!! <3 *~New Resp, due date; Feb 20th!*
+ THANK YOU!!! <3 *~New Resp, due date; slow*
 
  ![ezgif com-webp-to-gif-converter (9)](https://github.com/user-attachments/assets/8eb94476-bcac-49c4-85ba-62955ec5324c)
 
