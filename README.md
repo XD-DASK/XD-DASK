@@ -20,16 +20,14 @@
 
 
 
-..........................................................................'*•.¸♡ '"I'm going to be a Hokage someday Yaa'knoow!? "' ♡¸.•*' ................................................................................................
+..........................................'*•.¸♡ '"I'm going to be a Hokage someday Yaa'knoow!? "' ♡¸.•*' ................................................................................................
 
 belive it. 
 
 ruek blegh
 
-NNEWWERR strawpage!!!!!!! (https://fantasticalfantalinipaninimimi.straw.page) 
+making a new strawpage...
 
-https://rentry.co/Tamsy-Caines
-Made by my friend @Viinixxs !!! <3 TYSMMMMM
 
 ...............................................................................................
   ♡¸.•*'  
