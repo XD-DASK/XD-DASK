@@ -26,7 +26,7 @@ belive it.
 
 ruek blegh
 
-making a new strawpage...
+...https://idesiresleeepp.straw.page new!...will be newer soon
 
 
 ...............................................................................................
