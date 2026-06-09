@@ -24,11 +24,11 @@
 
 belive it!  
 
-ruek blegh <3
+ blegh
 
 ...https://idesiresleeepp.straw.page !...
 
-https://en.pronouns.page/@Idesiresleeppssz !
+
 
 
 ...............................................................................................
