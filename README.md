@@ -8,7 +8,7 @@
  
 
  ![ezgif com-webp-to-gif-converter (7)](https://github.com/user-attachments/assets/663d2944-e1d2-4378-83eb-75fbee3729f7)
-'*•.¸♡ '"I would beg, I would plead, I would shake... On a hook, dangling. By the way. Im so young and beautiful. I'm no fool." - Queens of the Stone Age'♡¸.•*' ![ezgif com-webp-to-gif-converter (6)](https://github.com/user-attachments/assets/ab9fe9cf-a6b8-420b-a526-a6032510d5ec)
+'*•.¸♡ '"The sad you that nobody knows is closed inside a box where you can't see the dawn and wrapped in the dancing moonlight, with your final glance, you see someone"' - Chiri Chiri Juso - Kikuo. ♡¸.•*' ![ezgif com-webp-to-gif-converter (6)](https://github.com/user-attachments/assets/ab9fe9cf-a6b8-420b-a526-a6032510d5ec)
 
 
 
@@ -20,23 +20,20 @@
 
 
 
-..........................................'*•.¸♡ '"I'm going to be a Hokage someday Yaa'knoow!? "' ♡¸.•*' ................................................................................................
+..........................................'*•.¸'"Your very existance makes every hair on my body stans up. At least the solutions easy. Ill just have to erase you! "' .•*' ................................................................................................
 
-belive it!  
+  
 
- blegh
-
-...https://idesiresleeepp.straw.page !...
+...https://idesiresleeepp.straw.page 
 
 
 
 
 ...............................................................................................
-  ♡¸.•*'  
+  ¸.•*'  
   
 
 
- THANK YOU!!! <3 *~New Resp,HERE!*
 
  ![ezgif com-webp-to-gif-converter (9)](https://github.com/user-attachments/assets/8eb94476-bcac-49c4-85ba-62955ec5324c)
 
